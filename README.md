@@ -1,1 +1,2 @@
-# Lasanga
+This italian dish can be made with a variety of ingredients. This includes and vegetables and any meats. Lasagna is basically a few peices of 
+square noodles stuck together using cheese and the meat/vegetables. The one i'm righting about has minced ground beef and ricotta cheese. 

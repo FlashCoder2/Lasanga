@@ -1,0 +1,6 @@
+- Firstly, cook the ground beef in a pot and add spices if you choose(my family did). Cook the beef until its not pink anymore but a light shade of brown.
+- Secondly, mix the ricotta cheese in a pot until it is nice and creamy.
+- Thirdly, place the lasagna noodles horizontally an then vertically. Between each noodles also put some ricotta cheese mixture and ground beef. Do this four times.
+- After that, on the top of the lasagna sprinkle some cheddar.
+- Then, put the lasagna in the oven for 30-45 min at 375°F. Once you take it out let it cool down for 10-15 min. 
+- Finally, eat the lasagna with any sauces you want.
